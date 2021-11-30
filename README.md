@@ -1,2 +1,5 @@
-# my-little-universe-cheat-codes-remove-ads-hacks
-My Little Universe Cheats unlimited resource Hacks remove ads ios android guide
+# My Little Universe Cheats unlimited resource Hacks remove ads ios android guide
+
+My Little Universe Cheats unlimited resource Hacks remove ads ios android guide - In addition to being a necessary condition for the resources required for the latter cultivation, the upgraded axe and pickaxe can also make you work faster after obtaining each new level. Each blow of any tool will harvest more resources, so fewer blows are needed to empty the supply source. The upgraded sword will cause more damage to each enemy, let you get rid of the enemy faster and improve your survivability. As a side note, in my little universe, the punishment of death is only transmitted back to your starting point. You will not lose any of the resources you have collected, nor will there be any limit to the number of times you can die and be reborn in an instant. If so, you may have just experienced a little momentum loss. my little universe unblocked
+
+<a href="https://watermod.icu/my-little-universe/">go here</a>
